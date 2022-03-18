@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Sanny Occhiuto
+- 👀 I’m interested in Games, Animes, Russian Post Punk, Rock and Lo-fi
+- 🌱 I’m currently learning study english and learn to program
